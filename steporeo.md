@@ -17,8 +17,8 @@
 - ##### Step 2 Heat the presure cooker/Idli maker for the cake
    Grease the baking pan
 
- Remove out the whistle of pressure cooker.Add 3 Cup of water in pressure cooker.(in presure cooker)
- Remove out the idli stands of the idli maker.Add 3 Cup of water in pressure cooker.(in Idli maker)
+    Remove out the whistle of pressure cooker.Add 3 Cup of water in pressure cooker.(in presure cooker)
+    Remove out the idli stands of the idli maker.Add 3 Cup of water in pressure cooker.(in Idli maker)
 - ###### Step 3 Decorate your cake and serve
 
   Take it out of the dish carefully, place on a platter and pour chocolate ganache, whipped cream or garnish with chopped nuts.
