@@ -11,7 +11,12 @@
 - ##### Step 2 Microwave the cake for 4-5 minutes
 
   Now, take a microwave-safe bowl and pour the mixture on it. Microwave on high for 4-5 minutes or till a knife inserted in the middle of the cake, comes out clean. Gradually increase the baking time until the cake bakes perfectly.
+        or
+   ##### Step 2 Heat the presure cooker/Idli maker for the cake
+   Grease the baking pan
 
+ Remove out the whistle of pressure cooker.Add 3 Cup of water in pressure cooker.(in presure cooker)
+ Remove out the idli stands of the idli maker.Add 3 Cup of water in pressure cooker.(in Idli maker)
 - ###### Step 3 Decorate your cake and serve
 
   Take it out of the dish carefully, place on a platter and pour chocolate ganache, whipped cream or garnish with chopped nuts.
